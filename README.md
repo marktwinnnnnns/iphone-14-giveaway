@@ -15,7 +15,6 @@ https://139576075-655434777900120204.preview.editmysite.com/uploads/1/3/9/5/1395
 https://biancafields.weebly.com/services.html
 https://biancafields.weebly.com/uploads/1/3/9/5/139576075/free_iphone_2023_updated_giveaway.pdf
 https://biancafields.weebly.com/contact.html
-![image](https://user-images.githubusercontent.com/116096177/199054527-dbb49a91-8910-4dc7-bc15-dea491acd67f.png)
 
 
 
@@ -73,4 +72,3 @@ iPhone 14 for free usa
 iPhone 14 free
 how to get iPhone 14 free?
 iPhone 14 free 2023
-![image](https://user-images.githubusercontent.com/116096177/199054464-a0354e83-6562-438e-a24c-d4122d695f4a.png)
